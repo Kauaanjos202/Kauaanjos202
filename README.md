@@ -14,4 +14,4 @@ kaua.cruzeiro@escola.pr.gov.br
 
 @kauaamjos202
 
-![](https://tenor.com/pt-BR/view/phatearl-gif-11370544260763921501)
+![](https://media1.tenor.com/m/7zfrNPCb96IAAAAd/unimpressed-mui-muichiro.gif)
